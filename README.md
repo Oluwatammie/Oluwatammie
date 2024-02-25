@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Oluwatammie
 - 👀 I’m interested in working with serious minded people
 - 🌱 I’m currently learning Mechanical engineering and coding
-- 💞️ I’m looking to collaborate on on any great project
+- 💞️ I’m looking to collaborate on any great project
 - 📫 How to reach me olajuwonogunsakin012@gmail.com
 
 <!---
